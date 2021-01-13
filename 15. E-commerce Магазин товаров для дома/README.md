@@ -24,6 +24,6 @@
 
 Ссылка на pdf файл проекта.
 
-https://yadi.sk/i/9RxaVBoln5_jtg
+https://yadi.sk/i/L5xrRwNrK6kOjQ
 
 

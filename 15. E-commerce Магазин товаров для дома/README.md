@@ -24,5 +24,6 @@
 
 Ссылка на pdf файл проекта.
 
-file:///C:/Users/User/YandexDisk/Загрузки/E-commerce%20-%20Анализ%20товарного%20ассортимента%20Финал.pdf
+https://yadi.sk/i/9RxaVBoln5_jtg
+
 
